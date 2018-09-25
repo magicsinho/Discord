@@ -1,1 +1,1 @@
-# Discord Top Ranking
+ Top Ranking
